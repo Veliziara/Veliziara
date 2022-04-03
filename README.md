@@ -2,7 +2,7 @@
  
  IMPA TRQ student 🚨 4°1° AV 🇦🇷
 
-![f31e618efaa13e6b0a0e27c07ed127eb](https://user-images.githubusercontent.com/101946032/161444397-24c6cf40-6478-49a3-a253-aeb06dda9018.jpg)
+![ebfaac1f8d61eab1fd967734e8239892](https://user-images.githubusercontent.com/101946032/161444512-5beb7e7c-929e-472a-b866-d5f3309769fe.jpg)
 
 
 🐈just loving my cats. I like draw 📖and read a lot of books (i think), but i am very distracted 🎠 i just wanna watch mlp and collect them 🩹
